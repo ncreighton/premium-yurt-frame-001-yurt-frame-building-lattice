@@ -1,0 +1,2 @@
+# premium-yurt-frame-001-yurt-frame-building-lattice
+Tired of crumpled blueprint scraps and mix‑up of lattice bend ratios? Your yurt frame deserves a dedicated digital workshop.  This Notion template centralizes your entire yurt building workflow—material tracking, cutting schedules, lattice bend calculations, and assembly logs. Save hours of rework and keep every measurement precise with a studio de
